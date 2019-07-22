@@ -12,6 +12,10 @@
     -maybe SEO ranks? 
     
     
+  - Betting agencies and growth due to Raptors 
+    - 1xbet etc. 
+    
+    
   - Advertising Return of Investment
      -Potentially look at increase of advertising costs after every Toronto win (incumbent upon the assumption that GSW was going to sweep)
   
