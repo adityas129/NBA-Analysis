@@ -40,6 +40,32 @@ https://www.statista.com/statistics/197984/nba-home-attendance-of-the-toronto-ra
 
 https://www.statista.com/statistics/764271/instagram-fastest-growing-influencers-cananda/
 
+https://www.statista.com/topics/967/national-basketball-association/
+
+https://ca.nba.com/news/nba-finals-2019-game-5-reaches-record-134-million-canadians-becomes-most-watched-program-on-television-this-year/1r854ib2rlgle1ti4dj61hovej
+
 
 all govt. data latest is 2018
+
+List Arjun:
+
+corporate sponsors sorted by industry 
+
+https://www.sportsbusinessdaily.com/Journal/Issues/2018/10/15/Research-and-Ratings/NBA-sponsors.aspx
+
+Food promos as a result of the NBA
+
+https://www.redflagdeals.com/deal/fast-food/harveys-get-a-free-angus-original-or-veggie-burger-until-june-15/
+https://www.eater.com/2019/6/10/18659704/mcdonalds-ontario-free-fries-toronto-raptors
+
+
+Secondary Companies that try to stay relevant 
+https://voice.mktgagency.ca/master-blog/categoryvoice/2019/05/10/raptors
+
+GDP 
+https://www.narcity.com/news/ca/the-raptors-actually-boosted-canadas-economy-during-their-championship-run
+Need to find the stats that they cite. Really hard to get hard numbers on visits to bars and stuff
+
+
+
 
