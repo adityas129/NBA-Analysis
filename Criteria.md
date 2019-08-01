@@ -40,6 +40,8 @@ https://www.statista.com/statistics/197984/nba-home-attendance-of-the-toronto-ra
 
 https://www.statista.com/statistics/764271/instagram-fastest-growing-influencers-cananda/
 
+Other basic numbers:
+
 https://www.statista.com/topics/967/national-basketball-association/
 
 https://ca.nba.com/news/nba-finals-2019-game-5-reaches-record-134-million-canadians-becomes-most-watched-program-on-television-this-year/1r854ib2rlgle1ti4dj61hovej
@@ -60,11 +62,13 @@ https://www.eater.com/2019/6/10/18659704/mcdonalds-ontario-free-fries-toronto-ra
 
 
 Secondary Companies that try to stay relevant 
+
 https://voice.mktgagency.ca/master-blog/categoryvoice/2019/05/10/raptors
 
 GDP 
+
 https://www.narcity.com/news/ca/the-raptors-actually-boosted-canadas-economy-during-their-championship-run
-Need to find the stats that they cite. Really hard to get hard numbers on visits to bars and stuff
+Need to find the stats that they cite. Really hard to get hard numbers on visits to local restaurants.
 
 
 
